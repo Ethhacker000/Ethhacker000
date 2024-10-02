@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @Ethhacker000
 - 👀 I’m interested in Livingmylife
 - 🌱 I’m currently learning hacking
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
 - 😄 Pronouns: 00xe23
 - ⚡ Fun fact: I am not an alien😂
 
